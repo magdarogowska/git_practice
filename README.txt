@@ -1,1 +1,1 @@
-Hell Git and Github
+Hey Marcin, can you add in your awesome picture as a background
